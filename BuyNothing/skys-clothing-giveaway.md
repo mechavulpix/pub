@@ -11,9 +11,6 @@
 ![XL Unicorn Onesie Front](Pics/unicorn-onesie-1.jpg)
 ![XL Unicorn Onesie Back](Pics/unicorn-onesie-2.jpg)
 
-#### XL Pikachu Button Up Collared Shirt
-![XL Pikachu Button Up Collared Shirt](Pics/pikachu-collared-shirt-1.jpg)
-
 #### 2XL (18-20) Torrid Purple Lace Sleeveless Top
 ![2XL (18-20) Torrid Purple Lace Sleeveless Top](Pics/purple-lace-sleeveless-1.jpg)
 
