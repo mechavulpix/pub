@@ -19,7 +19,7 @@ The party is a drop-in/leave when you'd like sort of event, with stops at a few 
   * Where: [[Google](https://www.google.com/maps/search/?api=1&query=Hawthorne+Asylum+Food+Truck+Pod,+SE+10th+Ave+&,+1080+SE+Madison+St,+Portland,+OR+97214)] SE 10th Ave &, 1080 SE Madison St, Portland, OR 97214
     * We'll grab some food and hang out a bit
     * Plates range, ~$10-15 depending on what you want. DF, GF, Veggie, Vegan available at some carts.
-* *7 - ~8:30/9?* __Suzie True @ Eastbank Espaland__
+* *7 - ~8:30/9?* __Suzie True @ Eastbank Espaland__ (outdoors)
   * Where: [[Google](https://www.google.com/maps/search/?api=1&query=Eastbank+Esplanade,+Southeast+Salmon+Street,+Portland,+OR)] SE Salmon St, Portland, OR 97214
   * Suzie True is playing PDX for my birthday! Well not exactly, but like, how lucky is this!?!?
   * Cover: $10 or less (per the band's [twitter](https://twitter.com/suzietrueband/status/1576259045937188864))
